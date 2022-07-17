@@ -13,3 +13,4 @@ What you need to do:
 Attention!!!
 You have to fill in the personal data of MetaMarketing partner program participant accurately and without mistakes, so the team could check and make sure all your conditions are fulfilled. Then wait for the result.
 Also, the team will track your activity and according to your results all participants of the MetaMarketing program will have an opportunity to become members of the project team, promoters. The candidate for project team membership will receive a message.
+💠 metamarket - (https://en.tcpcoins.net/metamarket)
